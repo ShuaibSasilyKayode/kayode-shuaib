@@ -30,7 +30,7 @@ I am a Web3 Growth Strategist with 6+ years of experience scaling decentralized 
 
 ### 📬 Let's Build Together
 - **Telegram:** [@shinystar22](https://t.me/shinystar22)
-- **LinkedIn:** [Shuaib Sasily Kayode](https://linkedin.com/in/kayode-sasily-shuaib)
+- **LinkedIn:** [Shuaib Sasily Kayode](https://www.linkedin.com/in/kayode-sasily-shuaib-721b90235/)
 - **Email:** shuaibsasilykayode@gmail.com
 
 ---
